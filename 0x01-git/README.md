@@ -1,2 +1,1 @@
-Be up tp date
-Today
+My first README
