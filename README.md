@@ -1,2 +1,1 @@
-Arsenal
-Today
+Do hard things
