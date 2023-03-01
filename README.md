@@ -1,3 +1,2 @@
 Do hard things
-All the time
-Worth it
+they are worth it
